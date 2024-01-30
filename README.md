@@ -12,8 +12,6 @@
 
 📫 Anda bisa menjangkau saya melalui [naziarahmania13@gmail.com] atau di media sosial [naziyaaraa].
 
-👨‍💻 Selain menulis kode, saya juga suka [Hobi atau Aktivitas Non-Teknologi Anda], membaca buku, dan menjelajahi dunia.
-
 
 Terima kasih telah mengunjungi profil saya! Mari terhubung dan kolaborasi untuk menciptakan sesuatu yang hebat.
 
